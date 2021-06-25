@@ -1,1 +1,1 @@
-A experiência que eu to tendo no programa Hiring Coders com as aulas da GAMA é simplesmente sensacional. Eu tô adorando, quebrando cabeça um pouco, mas estou gostando muito! 
+A experiência que eu to tendo no programa Hiring Coders com as aulas da GAMA é simplesmente sensacional. Eu tô adorando, quebrando cabeça um pouco, mas estou gostando muito!  Muito legal
